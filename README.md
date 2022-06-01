@@ -1,1 +1,1 @@
-Hi, Im Erik Ortiz JR Web developer 
+Hi, Im Erik Ortiz Engineer Web developer 
